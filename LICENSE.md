@@ -1,4 +1,4 @@
-# 
+# Seguro YNAB modelos para Mac OS | Novo YNAB modelos para PC Windows. Com modelos personalizados e digitalização de recibos — otimizado para máximo desempenho em cada plataforma.
 
 
 
